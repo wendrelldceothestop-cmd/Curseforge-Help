@@ -12,5 +12,5 @@ hoje eu não vou comprar robux beleza e espanhol e espanhol não tenho como func
 # curseforge-Store
 N tem como eu disse que não é uma loja ZEST1 não sei como é uma como
 depois de uma das                          
-Like 200
+Like 200                                   
 Se 100K                                    
