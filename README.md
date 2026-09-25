@@ -8,3 +8,9 @@ https://github.com/wendrelldceothestop-cmd/Curseforge-linux-1-/tree/main
 https://github.com/wendrelldceothestop-cmd/Curseforge-NacOS
 <img width="400" height="400" alt="images (2)" src="https://github.com/user-attachments/assets/0f65f50d-9a97-4bcc-bc84-7d73788b6580" />
 https://github.com/wendrelldceothestop-cmd/Curseforge-Windows/tree/main
+hoje eu não vou comprar robux beleza e espanhol e espanhol não tenho como funciona mas é um dos
+# curseforge-Store
+N tem como eu disse que não é uma loja ZEST1 não sei como é uma como
+depois de uma das                          
+Like 200
+Se 100K                                    
