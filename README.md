@@ -6,3 +6,5 @@ wendrell o que é uma vida
 https://github.com/wendrelldceothestop-cmd/Curseforge-linux-1-/tree/main
 <img width="554" height="554" alt="images (3)" src="https://github.com/user-attachments/assets/e9eff4d7-7817-4333-9605-e3caba5977e0" />
 https://github.com/wendrelldceothestop-cmd/Curseforge-NacOS
+<img width="400" height="400" alt="images (2)" src="https://github.com/user-attachments/assets/0f65f50d-9a97-4bcc-bc84-7d73788b6580" />
+https://github.com/wendrelldceothestop-cmd/Curseforge-Windows/tree/main
